@@ -1,0 +1,1 @@
+# yapay-zeka-ba-lang-
